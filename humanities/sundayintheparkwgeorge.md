@@ -1,0 +1,2 @@
+- Completely ironic portrayal of the painting, it's described as cold mechanical, etc. whent hat itself is actually the point. They claim there is no life in his painting but that is specifically what he is trying to convey.
+- Dress is symbolic obviously
