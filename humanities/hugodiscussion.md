@@ -1,0 +1,48 @@
+- Superimposition of gears on a city, essence precedes existence,
+- Almost exact same thing happens continuously, machines = repetitive/predictable
+- All the lines in the opening scene point 
+- He always Hugo's dad, Hugo, Papa George, Isabelle
+- Hugo has great power over others he's playing God.
+- Film regards a specific 
+- change in direction and point of view 
+- Location of Hugo within the scene, the clock is reflected in Hugo's eye
+- Close up shot, composition of clock within the man's eye
+- Specific choices of color gears are like darker, and within the trainstation.
+- Above is more of a pastel blue and darker versus a light golden view at the bottom.
+- Memories are in a brown, warm, happy color vs. the color]
+- Significance of living on the other side of the graveyard.
+- The mouse is colored blue as well
+- Blocking of Hugo's face continuously, through the bars, 
+- Browns and blue on the notebook.
+- The words themselves are blue while the drawings are brown.
+- Film, Machinery = Motion in Film?
+- Ghosts (beyond the graveyard) is relevant
+- Focus on relationships between different scenes, etc.
+- Pacing is fast
+- Post war in the train inspector's leg + Papa George 
+- Looking from above and the steam comes up from above
+- The steam is kind of like magic (used to cover things up). 
+- Geometric shapes in the background etc.
+- Light shining on door.
+    - First is diamond shaped eye, kind of weird
+    - Light shines in a white diagonal beam on the door in the second door.
+- Connection between magic + mechanization
+- Rigid geometry symbolizes 
+- Clocks on top of the eyes in multiple places (Melies)
+- Brown is systematic but blue is the bigger picture
+- Industrial Revolution?? w/ Modern Era Technology etc.
+
+
+- Extra parts = people because the machines are taking over etc.
+- Four = cross on the ground.
+- Her room is super brown. Automaton is humanized? Each human has an inherent purpose/job.
+- Graveyard scene they saunter forward to find the light.
+- Eyes = time, lacks the 
+- Films turned into heels
+- Holy spirit in the halo of the film etc.
+- Single candle is the holy spirit apparently - what does that mean?
+- Past drawings capture dreams = steam = magic
+- Robinhood steals from rich gives to the poor, 
+- Film = Magic = steam
+- TIme = Humanity
+- Something was always needed in order to connect

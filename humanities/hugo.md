@@ -1,0 +1,115 @@
+- Steam train sound overlays credits and acts as audio J-cut to opening shots
+- Gears ticking become the earth, earth = a big machine, etc.
+- Time seems to be moving very fluidly with the camera, music in the background.
+- Camera glides across and through the city with the people's actions unaffecting
+- Focus is on the big clock
+- No dialogue in the opening sequence
+- Opening sequence is an establishing shot for the entire scene.
+- Hugo is almost exclusively shot from directly behind him, the camera is always in motion around him and following him.
+- Camera only stops to look at the toy maker, vignette around this shop
+- People framed behind a cross like shape within the letter four.
+- Music is very regular and has specific intervals as he approaches.
+- He is framed behind a narrowing hallway, book is a flipbook and images form over time.
+- Man falls off ladder, sound echoes around the scene
+- Camera angles are used from child's perspective
+- Very playful and outrageous feelign throughout the movie
+- Camera is very mobile almost god like as it hovers over the scene.
+- He is constantly framed behind machinery/gears/etc.
+- Light shines only on the door as he enters the room of machines.
+- Light is very present in this scene.
+- City is framed behind the clock, continuining theme of the city = a machine
+- Hugo fades away revealing the city/credits in the opening scene
+- The train station is set in a completely different way at closing time, it becomes dark and mysterious with brooding columns and smoke.
+- Extreme use of symmetry in many places.
+- Hugo glances backward uneasily at background.
+- Music is used forebodingly in dark shots
+- The train is a symbol of wonder, magic, etc.
+- Isabelle uses language as a tool, etc. and is lit up from behind constantly with warm red light compared to the cold symmetry of everything else
+- Warm candle light exudes from the automaton as well , the light flickers against it as time bends and changes.
+- The clockwork = the secret to the life/automaton, it's used by magicians
+- Mystery makes him happy, the fact that it is unknown and mysterious is what is wonderful and magical.
+- The lighting during the memmory is warm, and bright, and happy.
+- His father died in a single second of flames and obvious special affects
+- Time is everything -i 
+- People are constantly framed by regular structures, the magic is against some backdrop
+- His leg is broken and thus mechanized, the same things happen every day with respect to time (it's like clockwork)
+- Even the shots are repetitive, the mechanized leg 3
+- Ashes = memories/dreams lightly shattering.
+- magic = technology = stories = dreams
+- Symmetry shots are used frequently
+- His head is framed behind symmetry, and looked upon from above.
+- Parallel action is used between Hugo fixing his stuff and everyone else in the scene.
+- Magic is like an autonomaton where the heart is not known
+- Lighting is used strategically and he is constantly framed upward.
+- He is framed against moving gears and parts endlessly and is looking to finish the inside of the automaton which initself is very significant.
+- Love is seen as almost mechanical, and framed behind things.
+- Adventure = risk/unknown
+- Lighting behind them ailluminates their heads
+- Man is hanging on the CLOCK
+- More natural light is used to illuminate
+- Dark room, white screen, rocket into a man on a moon.
+- Camera is shot focusing down on him, even when he is with Isabelle
+- He is shot from below only when
+- We're here to either get on trains or get off them
+- She is caught under the feat, and the feet stampede on top of her like a mirror almost.
+- Long shots are used frequently to explore the high level fiew of things.
+- Steam comes from the trains which go through the clocks, and is behind them.
+- Existential = to do what he is supposed to do
+- Hand off of the key is framed behind the machine.
+- Automaton have a specific function, and acts like magic
+- Brokenness, he is framed behind the smoke now. It rises from the ground.
+- The automaton is in the foreground.
+- After the automaton the shots aren't symmetric anymore
+- Framing behind a key is significant.
+- He is looked down upon even here.
+- The papers soar out of the binder, leaping oand flying, and turning into animations and colors, and magic.
+- It's all wonderfully beautiful.
+- He's a broken wind up toy, a low camera frame is used with several lights in the bacgkround.
+- THe statue of sorrow is moved away from and zooms away.
+- Music in the background changes to a light airy tone.
+- painting on the wall behind the flower area is relevant
+- He seems almost like an automaton when he bends down to pick up the flower, the mechanical part of him limits him.
+- Long shot at the film academy library makes it seem as if it goes on forever.
+- Light shines down dramatically upon the desks.
+- Painting very significant as light came out of fingers, etc.
+- Film became stories -> dreams and they are just as mechanical when you break them down yet just as beautiful.
+- Films have the power to create dreams
+- The author of "The Invention of Dreams" is filmed from below.
+- Crystal mystery clock, is like magic
+-The creation of the films was mechnanized all for purpose but it was magical (like a palace made of glass)
+- Long shot frames the main room constantly
+- Now Isabelle is looked down upon
+- Dreams are made from magic/reality
+- The man was shot down upon
+- They put all that they can into those words
+- Views of the city inside the station, many establishing shots are from Hugo's perspective.
+- Shot from a high angle with gears turning on top right and shot of the  city in bottom corner.
+- Clock is surrounded by smoke, and continues to come in focus in bottom right corner.
+- Shot of the train moving forward is very apparent.
+- The clock is missing but the ticking sound continues. He himself is becoming mechanical slowly.
+- The icy figures look down on him as the clock ticks away.
+- High angle vs. low angle shots.
+- Hurt to remember the past
+- Hand painted frame-by-frame, the past is part of the copmlex
+- Heart and soul within the machines,
+- New kind of magic = movies
+- Leftover pieces from the automaton (extra parts have apurpose too?)
+- The acting is filmed the same way the machines are (an intricate machine) but getting so close to the secret spoils it almost?
+- Or maybe it doesn't spoil it idk
+- Magic tricks/illusion are still magical when you know the secret, just as things can be even more beautiful when you see the machinery that lies within?
+- Post-war effects (in the guy's leg) it is debilitating and sad
+- Burning of moon very relevant, nothing without a purpose even the films got reused into the shoe heels.
+- Vertical shots from inside the stairwell, looking down on the tnetion below.
+- He's hanging on the clock mimicking the movie scene from before. Homage to the classic movie scene and the same shot exactly is made.
+- Framed behind bars when the man comes up the stairs
+- High and low vues of him as he is standing on the clock ( close up and non close up)
+- Camera remains highly-mobile, mimicing the initial shot
+- Kick to the mechanical leg is employed, his dream is imitated, obvious foreshadowing from before. Same scene is mimiced.
+- Child has to belong somewhere, etc. we all have a part.
+- He worked perfectly though he was broken because he fullfilled the original purpose.
+- Spotlight / being framed between opening curtains.
+- Spotlight is very apparent in terms of symmetry.
+- Kindest magic trick even though he knows the secret, in fact it's more beautiful since he knows it.
+- He is framed perfectly under the light making a Christ like motion with his hands spread.
+- Rotating and circular shots,at the end. He found home.
+- Significance to the last shot (holding it on the shot of the person)

@@ -1,0 +1,159 @@
+- Leg grabbed to stop from flying
+- He is very reactionary and his facial expression is calm whereas she seems flustered (sharpness w/o effort)
+- No desire without restraint, no growth without friction, etc.
+- "Hold it in still" - lesson
+- "Kill or be killed" - is the evil fighting style of Giang Hu, it's wonderful isn't it?
+- Jen is super good, she has goodness, but Jade FOx is not
+- He is practicing with very surreal music in the background and uses a shot from above zoomed out while he is swinging his sword around, this is essentially meditation and isolation
+- He is framed behind his wife person strategically.
+- Symbolic shot with the leaves above their heads in an empty landscape, their shadows are stopped and almost momentary.
+- Uses a very very close up shot when Lo comes in to see her.
+- Flashback to the dessert is very significant (setting where they first meet)
+- Comb is played with but not broke (white comb)
+- Zoomed out shots used to show the whole scene
+- She is holding the comb the camera is swaying and framed behind the cage.
+- Camera tracks as they fight each other on horseback for the comb which is symbolic of something
+- Very playful fighting style, cut away shots, they tumble down hill into the dark sand below.
+- Both passed out, equally matched, no water, filled in a cave w/ the material things he has stolen.
+- He's taking care of her
+- Tilt shot to the side showing nothing but a completely barren landscape.
+- Blurry shaky shots frontal facing
+- Warm light from a candle lights up leaving a small dot of white in her black eyes, then fades to black.
+- Making sure she knows where he is at all times, taking care of him.
+- Fighting turns into making out + sex
+- Fades out into the dessert
+- Faded frames  they begin to appear on the sand
+- I am an orphan I used to look for the stars aone, I''ve been riding in the dessert ever since, He couldn't find the stars, Fight for survival, Part of a gang to stand a chance, gang becomes your family, he's still that little boy looking for a shooting star.
+- Scenery changed to a lush green value with mountain peaks
+- Interesting playful music with a stringed instrument intermixing playfully w/ something else
+- We have a legend, anyone who jumps of the mountain, God will grant him a wish, floated away never to return knowing his wish would come true. "A faithful heart makes wishes come true."
+- She clutches the comb and gives it to him, it is her trust?
+- Comb is returned, and is the focus of the next shot, she has it returned and is still not happy?
+- Red coat is slowly focused on as it moves upward, he found her 
+- Come w/ me to the desert, while she is trapped in this red box (very symbolic) most likely
+- Very symbolic scene rwoing in the water with reipples flowing out
+- Window into the bamboo trees whereas the room itself is completely white etc.
+- The things we touch have no permanence
+- Not everything is an illusion, my hand wasn't that real? Giang Hu is a world of tigers and dragons, corruption, feelings repressed strengthens, 
+- He can either have Wu Dan or Shu Lien, not both.
+- Tea was spilled slightly
+- Very cool rotating moves.
+- Dark background cast against sheer green glandscape.
+- The girl showed up to the
+- We wanted some peace and you've ruined it all, "You're no sister of mine"
+- Sword scabbard is cast aside, Shu Lien is not Wudan changed she has control
+- Jen doesn't have control over the fight.
+- Pounding drumb in the bacgkround
+- Dual swords gives her control which Jen does not have
+- She has flexiblity w/ many different types of women
+- It appears as if Jen is winning but in reality Shu Lien is the one w/ all the control in this fight.
+- Sparks are very significant, the sparks and everything.
+- Her hand is shaking whereas Shu Lien is not at all. This is made apparent in the closeup shot of her hand.
+- She finally picks up a one handed long sword and gets Jen
+- Li Mu Bai's control patience, matrutiy
+- They fight at the tops of the bamboo trees, she is out of breath.
+- HE let her go to see the real her
+- Cinematically the trees sway
+- She puts a lot of effort into things
+- She is laid down and surrounded by the trees and grunts w/ effort but for Li mu bai he sails on the trees rather than being confined by them.
+- Effortless stuff is the major key
+- She tries to change her environment and tries to snap the tree but this doesn't work effectively this is why he is a Wu Don master.
+- He has incredible 
+- Green destiny flies into the water, the material thing doesn't matter, what matters is subservience, patince, etc.
+- Jade Fox takes her out of the water
+- Thick rain pours down and an even thicker fall goes onto the lake
+- Smoke appears out of the lake as well.
+- She kneels under the light and takes in the water from above and the water falls from above.
+- Jade Fox was drugging her (not rescuing/taking careI)
+- Water drips from above into the cavern and this is highlighted
+- All her arrows and eveything were reflected back at her and she died (posioned needle)
+- Green light with the needle things and then a blood splatter shot
+- 8yr old girl full od eceit is poison, who she tried to kill
+- Witch is buried in the rain 
+- Framed behind two big wooden doors as she runs inside.
+- Poison going straight to the heart is very symbolic
+- Please let your soul rise to heaven w/ your last breath, do not waste life on me.
+- I want to tell you with my last breath that I've always loved you.
+- Sacrificies important things for faith
+- Would rather go to hell than enter heaven w/o her, I will never be a lonely spirit
+- He doesn't care and he gives into the momentary pleasure on Earth with is beloved
+- Jen's fault for his death, she now goes to Wudan mountain, she is forgiving and kind and everything.
+- Wudon mountain is sheer vertical steps going to Wudon mountain.
+- Comb left on the bed
+- Fog rising from below and she stands still
+- A faithful heart makes wishes coem true, she jumps into the abyss b/c she cannot think of remember anything. She surrenders finally and finds her beloved, dissapearing into the white empty space.
+- Final shot is the mist on the top left and the greenery on the bottom right.
+- He flies forever and doesn't die. Immortality?
+- Entire life is devoted to his faith, which required giving up everything materialistic, and he realized what he missed out on, and it's too late.
+
+
+- Tried to talk to Shu Lien in the bamboo setting behind them, she didn't say anything and she didn't want to be responsible for that, so she didn't give in either, it's not until he's dying that they both give into that emotion.
+- Jen and Lo always had that, but Jen wanted to be part of the Wudon, and Shu Lien convinced her not to be, Jen's choice in the end was to Wudon, she let go of Lo and choise Wudon, so she wouldn't have to go through the pain of loss?, why would she choose wudon and that faith over her love for Lo? She had no control over anything/her emotions, she finally takes control at the end. Ironically when she witnesses true love she comes to realization about emotion and what it does and how it can destroy several relationships etc. 
+- Like a true Jedi loses control? She wasn't in control for most of the film, not fluildly acrobatic, choppy movements, she shakes a lot in a lot of different closeups, she believes the power comes from the sword but in reality the power comes from the mind, soul, and heart.
+- Patience, Desire without restraint (truly believe), Subservience in terms of servant to everythign else in the world (everything around you is alive you must respect), she tries to break the bamboo, she is often framed by the bamboo (restricted by it) she was constantly surrounded by the bamboo in the fighting scene, wheras he was guided by the bamboo.
+
+
+- Presents ideas of the yin and yang, tension between the two ppl
+- Village + Reflection of the village, Raining (water starts to break the reflection)
+- Individual's identity is in the reflection/actualization
+- Fragmentation occured through the rain they lose the rain (bridges connect things)
+- Bird's eyes view shots seen from a detached POV, 
+- Fighting style of Jade Fox is like postmodernism she is very spordic
+- Shu Lien is more modernism and measured w/ stability in their response
+- Shu Lien brings Jade Fox down to the ground where everything is equal
+- Jen is within the darkness and envelops the dark.
+- Caligraphy = form of power, flexible, strong like the Green Destiny, Jen is free b/c she can write
+- Green destiny = yin
+- Writing is greatly contrasted to her fighting style
+- Appearnces vs. Reality
+- Writing = material object like technology/machinery, Shu Lien is idolized
+- Shu Lien is portrayed very simply behind structure/geometric 
+- False identity is structured but we can see through it in the background. It's see through.
+- Jen jumping off denies the wish etc. b/c the legend is contradicted.
+- Karmic cycle continues until your wish is your desire.
+- Candle brings back to past represents individuality, contrast to her current setting, she is concealing her individuality/identity and blows it out.
+- Hugo candle was associated w/ the automaton/going back to the dream world
+- Not able to show true identity while Jade Fox is around, Jade Fox is sharp and by doing her hair she transfers her knowledge as a mentor and shapes her identity, so Jen goes from being formless and blurry to being in focus
+- Everything covered with shadow except for the eye
+- Stranger than  fiction is all about comparmentalization/geometric structures, and his closet and his mirror and his drawyers have a lot of structure/order etc.
+- Square = sky, Circle = Earth inside square of the universe
+- Bamboo = righteousness, has freedom is unrestricted
+- Inner is industrial concrete
+- Not criticism of post modernism maybe is transition from modernism to post modernism
+- Focus moves from the background to the foreground, it's the process of abandoning the physical world
+- Nothing we can hold onto in this world
+- Stranger than Fiction crafting a real novel which she is crafting which lasts forever
+- Without green desity, without human emotion, withot physical touch you must experience the physical in order to get there.
+- In the beginning, darkness is mass and matter and he can't get through that into enlightenment
+- Li Mubai's love is physical passion and that is what he is missing
+- Shu Lien looks down at Jen
+- Become one w/ nature, nature is a living thing (you need to respect)
+- When is the real person, Harold, acknowledged when they acknowledge each other?
+- Characters in Hugo become real
+- Lo is the Tiger, Jen is the dragon?
+- Comb = momentary/physical stuff
+- Camera angles show how unpredictable and unstable Jen is (b/c it's hidden)
+- can see what we want to do, stable, etc.
+- There are many crouching tigers/hidden dragon are in both
+- Crouching tiger (modern) -> to dragon (postmodernism)
+- Tiger is full of life and embodies the drive to make progress, Dragon is a symbol of imperial power
+- Jen initially is dragon (has potential/talent) hasn't utilized it and let go of things and gain the stability of a crouching tiger
+- At the end she transforms that power into fullfillment/satisfaction
+- Whole world is processed so we lose out on the connection w/ people so you need to use your own creativity to put creativity into the life you are living.
+- There is potential there but she doesn't know what she is going to do. The tiger knows what she is going to do.
+- Anonymity = her in a mask
+- Isolation amongst a
+- Sword is a phallic symbol = power
+- She has the power without this
+- She was literate
+- Li Mu Bai doesn't fight physically, there's no reason to be fighting he doesn't actually fight it's all psychological. Everything he does is a lesson. She becomes aggresive but doesn't work.``
+- When we first see her there is very physical
+- Shot was from below and showing every single embellishment and red, and there were tassles on her sword when she was disguised.
+- Her writing was just like fencing it requires the same concentration, precision, focus, delicacy.
+- She had the qualities inside herself but she wasn't able to present them b/c of those material things that she couldn't break through.
+- Behind Jen there was very fancy pots whereas on the other side there were natural stuffs Shu Lien + Li Mu Bai have the purity/clarity/non-materialistic view.
+- Geometry is about clarity
+- He transmits the calm/spiritual awareness (centering her)
+- 3/5 notecard for each film (only have concrete details on them)
+- Read prompt carefully and make sure we read it properly
+PROMPTS HAVE WORDS

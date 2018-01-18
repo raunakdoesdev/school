@@ -1,0 +1,103 @@
+# Truman Show
+- Analyze the naming of things in the movie
+- Religion vs. Existentialism
+- Look at free-will vs. determinism
+- Another Person, Discussion
+- Initial closeup, there's nothing fake about our own perception, because our peception is the reality
+- It's a blessed life not to know what lies beyond, our perception defines our reality and that's what matters
+- Vignette used, and he is framed behind a cupboard at the beginning.
+- A light falls out of the sky, his reality is essentially being questioned.
+- Closeup shots are used
+- Constantly being framed through windows through a magazine.
+- Binoculars mimicked through the vignette effects.
+- "Always" a beautiful day because that's all that is percieved
+- He isn't that "anxious" to get there because it doesn't matter
+- Framed behind a printer, these material things are always presented.ing)
+- Close up shot constantly used.
+- Camera is very stationary, and constantly framed behind peeping holes etc., but the camera holes are shaped like eyes.
+- Colors are very bright, advertisements are sprinkled throughout, perfect life is framed.
+- He's not satisfied with his limited life (Fiji = heaven), we are constantly thinking of what is beyond.
+- Money, planning, etc. needed for heaven (penance, etc.) but it's futile because Fiji can't exist, it's unnatainable, it's a lie told to him by his surroundings.
+- Everything always framed through use of the vignette.
+- Nothing is scripted, his desire for adventure/explorer is his desire to discover the world and understand his surroundings.
+- Town is shaped like a smiley face? kind of
+- His father came back on the set
+- Camera is very stationary
+- His wife is a walking advertisement what does that do?
+- "They got rid of her but couldn't erase the memory"
+- Rotating camera during the dance. It revolves around Truman as life revolves around the individual, perception is reality (we are all in our own reality)
+- He is always partially occluded, half of him is prevent at any time. His head is always peeking around a corner.
+- Library Scene
+    - His head is put against a background of an interjection of black and white.
+    - "I'm a pretty dangerous character"
+    - Life keeps taking over the TV show
+    -  Angle is used to obscure the cameras, almost Big-Brother like (watching you)
+- He escapes into the darkness but the cameras can't escape him
+- Can't plant love, is that his own free-wil?
+- Most of the town is completeley
+- "How's it going to end?" - relevant
+- He layers the women to try to make his beloved, it's difficult.
+- He didn't buy a amagazine on one day, he has free-will.
+- Music is becoming tense, and more cheerful rather than playful cheering. There is tension, etc. within the happiness as he he is gaining free-will/control almost
+- He is portrayed in the back of a mirror to frame him. (Suggests
+- He is constantly framed behind windows/ mirrors, etc.
+- He is becoming suspicious about his own reality, a brooding but happy music is playing signifying the arrival of something new
+- He sees the set this is important, the people don't care. He feels trapped ina little boxy town.
+- It's when I'm unpredictable, that's when they react, he is experimenting with his free-will.
+- The sunset is perfect (big-guy) paintbrush
+- Mount RUshmore looked tiny b/c it was a set.
+- "Show me the way to go home" - Small town life, no one's poor who has friends
+- Crossing fingers on wedding day
+- He knows everything, he sees through his wife and everything.
+- He's worried about being watched and his hunched over when that's all that's happening, of course he is being watched.
+- Travelers beware, "Lightinging hitting plane" it could happen to you!
+- All of this in a travel agency
+- "Technical difficulties" with the bus, everyone gets up at once, saame guy who ran the water taxi (doesn't know how to drive anything), he really is sorry imo
+- White and black filters are used differently, black vignette for the outside, white vignette's for him.
+-Back of his car is shown to be stationary = he is not moving.
+- "That's why people go places isn't it" - because I never have
+- Beautifully synchronized traffic, he's becoming aware.
+- He can't stand water, this was the plan. Convenient how they live o
+- He's escaping
+- He is always filmed through these reflective round shaped surfaces but it alternates into his own perspective as well.
+- "Do something" unprofessional, hypnotism almost.
+-Framed sitting on a high off ledge near the water.
+- Whatever the answer is, we are in the reality. So the point is that it DOES MATTER if we are in a simulation/not in a simulation
+- It DOESmatter, sinister music playing in the background when they are lying and he is falling into their dream
+- And the last thing I would ever do is lie to you, but like every statement is a lie.
+- "If everybody is in on it" - it doesn't matter. The wall is broken.
+- Camera is always still when Truman speaks
+- Close up is used only for infomercial type things (when wife is talking)
+- He was in competition with several other pregnancies
+- We accept the reality of the world in which we're presented (important)
+- He has shielded him from the "realities of the world" = "Seahaven" (ignorance, etc.), if you are determined to discover the truth (nihilism/existentialism) then you will find it.
+- THe main guy is acting as a parent, protecting Truman from the realities of the world
+- Truman acts like a child because that's the state he is in essentially.
+- When he is more and more trapped the lens gets more and more constrained + dark. When he acts crazily/knows the truth he begins to see.
+- People are being "fed lines" by society
+- The light looking for him is a bright spotlight like the moon in a sea of darkness. (Light and dark used very efficiently.)
+- THe lights on the flashlights are probably significant of this as well.
+- Characters completely change when he becomes like this
+- Every day looks exactly the same, they all get into "first positions"
+- Eagle is shown on the front, against the water. = freedom
+- The top view is shown, with a widened "eye" shaped opening, because he can see. Calle
+- Eagle is being drenched in water continuously, but at this point the black eye dissapears for a white lens on the camera. Very interesting.
+- Santa Maria drifts away while his chance at knowledge and freedom drifts away.
+- He is batterred by stroms as the black eye comes back (he is getting farther and farther away, the black eye morphs into a black circular one.
+- SUre enough the eye comes back when he 
+- He is like Christ with the cross, depicted as the savior, the martyr, etc.
+- Clouds and sunlight appear, and the camera becomes white again. But this is importaint.
+- Seahaven is constructed with white, blue skies, blue waters, etc. = everythign we associate with good, whereas the outside world is represented in a black door (falsehoods)
+- He moves toward the black in a sea of all that is good, as the music takes a major key and everyone stands watching.
+- He is appreciating the dream for the last time, and sails into the end o
+- He finally sees the truth and his happy but not truely, the wall is lined with darkness and seams (reality is not perfect, beautiful, or consistent)
+- His shadow is cast behind him, as the eye comes back as he takes the steps upward towards the door. Although he is in "heaven" he takes steps up to escape reality.
+- Black door cast against the blue sky (the dirty reality against the blue/white backdrop)
+- There is no more truth in the messy existential world that exists, than in the false world he has.
+- He is put up agains the dark void with his head down
+- Religious parrallel is that Seahaven to heaven, Christoph = God
+- Black fuzzy void is used instead of the other cease transmission thing
+- "Where's the TV Guide?" is the last words of the film
+- He is the only one in the real world that's why "he's a better person than me"
+- A lot of white is used, clean slate.
+- It's a constant in the dynamic world like a star(like Sirius major)

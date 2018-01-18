@@ -1,0 +1,21 @@
+"""
+ID: your_id_here
+LANG: PYTHON2
+TASK: standingout
+"""
+
+def get_all_substrings(input_string):
+  length = len(input_string)
+  return [input_string[i:j+1] for i in xrange(length) for j in xrange(i,length)]
+
+def common_substrings(a,b):
+    return list(set(get_all_substrings(a)).intersection(get_all_substrings(b)))
+
+print common_substrings('tommy', 'amy')
+
+fin = open ('standingout.in', 'r')
+fout = open ('standingout.out', 'w')
+n = int(fin.readline()) 
+sum = x+y
+fout.write (str(sum) + '\n')
+fout.close()

@@ -1,0 +1,7 @@
+- The meaning of humanity is to face the fate and circumstance we are dealt with, but to move forward.
+- never being in control, but making the most out of your life
+- develop a better sense of self
+- purpose = a sense of one's own worth or value
+- to find connection
+- to believe in something
+- to have purpose

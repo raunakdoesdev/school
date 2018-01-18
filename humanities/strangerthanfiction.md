@@ -1,0 +1,108 @@
+- Zoom in and focus on the beeping of the wrist-watch.
+- He is immediately characterized as a perfectionist
+- Wristwatch is immediately characterized.
+- Tracking shot used while crossing the street.
+- Use of white overlays in the environment.
+- Shots are very mechanical as in a comic book.
+- Wristwatch cast blue glow on top of Harold's face.
+- Silence is used as a place of writer's block, music ceases. Repea of narration.
+- Character gains consciousness when writers block occurs.
+- Tracking shot 
+- His 
+- White boxes everywhere in the tax office, completely white.
+- Continuous over the sholder shot isn't just isolated to Dave it signifies him always being watched.
+- Mid-shot used to frame him, with a single empty box in the background.
+- Over the shoulder shot repeated, Ms. Pascal revolutionary
+- Camera angle is used to move up from a lower shot to the top.
+- Fast camera angle changes and shifts suggest problems
+- Shots are framed in front of her face,
+- Framed behind white walls, most of everything is white in comparison to the sotry world.
+- The camera watches
+- He is framed behind a blue cloud bacgkround, looking like God = he has the power in reality
+- The camera sits upon his shoulder continuously
+- We see the world from the watches perspectives, watch is particularly characterized.
+- Stopping of the watch is symbolic, reaction of 
+- Use of the centered shot
+- Framed behind circles inside the air.
+- Somber music is used when he can't hear what the narrator is saying, it's sad because he doesn't understand his fate. In reality HE HAS the power.
+- SHallow depth of field used in shots focused on him.
+- When talking to psychologist reflection of the heads can be seen on the table
+- Tiled bathroom focuses on the head.
+- Camera moves through walls, is very omniscent but still limited in some ways.
+- Over hte shoulder repeated during conversation
+- Wedged between a door and a wall
+- The camera is always slightly mobile even on solid scenes, it shakes along with everything.
+- Rotating camera shot is very significiant, he oscillates back and forth with the trains movements.
+- The fact that they are on two different buses of the train is very important. The camera is even more mobile when we 
+- The numbers that pop up around him are symbolic of something
+- He is always shifted to the the right side ish of the rooms.
+- Geometric shapes in the bacgkround, trapezoid on the base with a rectangle on top.
+- Rain is used very dis
+- Yellow umbrella w/ Penny is very significant
+- Insignificant in comparison to everything else
+- Music is very significant, it sounds like music from a video game which may be significant as it 
+- Circular opening being peered through to see the women is very significant
+- Cookie is significant as it's not something the narrator entended for him to do
+- He is specifically experiencing the cookie, he feels the cookie, and the bacgkround behind him blurs as he does so
+- Revealing Rene Descartes I think therefore I am thing. Experience -> Thoughts
+- Often this fading of the bacgkround happens gradually as with the cookies. It faded into it.
+- He is the one who messes it up, HE is alive because he thinks.
+- Cupcake drips with water from above and a background is blurred in the background.
+- The VOICE IS DEPENDENT ON YOUR ACTIONS,
+- Naked men next to poles on backgrounds in
+- Clock beeps and is advancing the narrative himself
+- The floating graphic icons 
+- Documentary is significant = the crab is trapped just as he is
+- The camera accelerates very interestingly, can't escape anything.
+- The tclock is telling him something
+- He literally can't escape the story = his purpose it will ifnd him no matter what he does apparently. 
+- He doesn't control his fate?
+- Crooked angles frame him once he is sort of kind of aware.
+- Sees the girl through a circular glass (circle is important, repeats in multiple things)
+- Face partially cut off and reflection in the mirror is in many different angles compared to the straight on shot from the beginning of the movies.
+- Continuous tracking shot is used and white text goes away, white text is the mechanics from hugo if that makes sense
+- Repeating chords are melancholy regardless of his new found stuff.
+- Ms. Pascal framed behind windows with sun beams etc.
+- Continuous framing behind the window with the circles on them.
+- Tracking shot eliminated at this point once he met the girl. Far off shots and closeups are used more exclusively.
+- Ballls of multi colored light remain in the frame continuously in her house.
+- Tracking closeup shot is used to maintain a closeup, and gives a shoulder view from the girl's POV onto him.
+- "I'll go the whole wide world just to find her." probably significant
+- THe interview is a decade old meaning his essence has been predetermined. But essentially IT DOESN'T MATTER? RIGHT
+- Apple rolls down onto street, and someone picks it up with a very distinct pinging sound.
+- WHAT'S THE SIGNIFICANCE OF ThE ASSISTANT??????
+- Music takes a much more happy note at this point.
+- Quick successive shots are taken, to show urgency.
+- This wayout is used and recurring patterns of light and dark on the cieling are used, in an endless tunnel.
+- Single peeophole and then a knock, peephole is oblongly shaped from his point of view.
+- It really is Stranger than Fiction.
+- "Little did he know"
+- It's just an outline, not typed, I don't know the rules =, I'm just trying to write the book.
+- "Let him read it"
+- The book is his fate but he can't read it
+- He hands it off to the professor in a high chair in the swimming pool which is super significant as he is basically god. the swimming pool is his world.
+- Light reflection puts a halo on top of the guy's head this is rlly cool + significant
+- Music changes tone again interestingly enough, but it's an organ playing this happy tune so it has a sense of blissful sorrow
+- Red light is used continuously
+- Shirt is made almost red/pink with blood, it's beautiful.
+- Reflections in the background, God can't change fate, and it doesn't even matter anyway
+- The camera zooms in on Harold as his fate closes in on him, ever so gradually. -
+- Framed behind a single yellow poe amidst a a bunch of gray ones in the bus.
+- Other's hands graze this yellow pole it's extremely signficant.
+- Bus moves to park amongst a sea of other ones in the shot - significant
+- She stares up above
+- Music finally takes on a sense of resolution, but happy at the same time. Tension is released slwoly and gradually as Harold rides the bus for the last time.
+- He reads it and there is only one way for it to end, he loves his life and he wants to finish it if that make sense
+- Regardless of the fate being set out before us or not, it doesn't matter.
+- Movie was seen with car breaking down and needing to be pushed, in an old scene.
+- He wants to make the world a better place somehow.
+- The watch stares back at him and is brokenslowly ticking away but it's turned off.
+- He stands in his broken house, and goes through with a mundane day. He is juxtaposed with the child going to school, and the black women going to work for some reason, idk.
+- "Love life" = Love for life
+- Shaky hands as she murders the child. He saves the boy'
+- The watch is what saved his life, very interesting. A piece of watch is embedded within him for the rest of his life.
+- It's "ok", Cookies = happiness, = love, = appreciation for everything
+- He dives in himself, relinquishing himself from that Godly position.
+- They save our lives, the little interactions, and things they do.
+- High angle shot showing all of the people in the same suits and stuff wandering around while he has a very bright red sweater while he heads towards the phone booth. He found individuality and thus has been human.
+- Gunshot wound, things beeping, sound, writer's block 
