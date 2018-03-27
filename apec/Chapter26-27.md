@@ -80,7 +80,7 @@
 - Protests were quelled w/ force, but also made reforms (too few and too late)
 - W. E. B. Du Bois + Marcus Garvey led movements to make Africans aware of heritage and stressed unity for Africans respectively.
 - Jomo Kenyatta in Facing Mount Kenya argued British rule was destroying African culture.
-## The Authoritarian and Totalitarian States
+## Chapter 26.3 - The Authoritarian and Totalitarian States
 - GB, France, and Scandanavian States, Switzerland, and Czechoslovakia remained democratic.
 ### THe Retreat from Democracy
 - New electorate distrusted democracy and moved toward radicalizcm after the war
@@ -201,7 +201,7 @@
 - Fascist movement in Spain = Falange, led by Jose Antonio wasn't w/ conservative Franco
 #### Portugal
 - Portuguese overthrew monarchy established republic, but inflation lead to military coup by Antonio Salazar who controlled Portugal for forty years.
-## The Expansion of Mass Culture and Mass Leisure
+## Chapter 26.4 - The Expansion of Mass Culture and Mass Leisure
 - 1920s = "Roaring Twenties" for pop culture, Josephine Baker well known in Europe, and appeared in clubs w/ Jazz.
     - Symbol of the "flapper" = women of 1920s
 - Jazz so popular it was Jazz Age, King Oliver, Bix Beiderbecke, Jelly Roll Morton, were great.
@@ -313,7 +313,7 @@ Schonberg created new twelve note system of composition
     - Japan wanted China part of alliance + seizeure of Soviet Siberia to create Monroe Doct. for Asia under Japan
 - Japan initially cooperated w/ Nazis and planned attack on USSR, but Nazi USSR alliance led them to focus on Southeast Asia.
 - Southward movement risked war w/ Britain/France/US so when Japanese took over South. Vietnam, Americans cut off iron and oil to Japan and Japan attacked US naval fleet in Pacific.
-## The Course of World War II 
+## 27.2 - The Course of World War II 
 - Before Poland Hitler talked about complete destruction of Poland
 ### Victory and Stalemate
 - Hitler moved into Poland w/ blitzkrieg or "lighting war" in panzer divisions to break through Polish lines
@@ -374,7 +374,6 @@ Schonberg created new twelve note system of composition
 - Hitler moved into a bunker 55 ft under Berlin in final stages of war, and commited suicide when German commanders surrendered.
 #### Defeat of Japan
 - War in Asia continued and was devastating for Americans until Harry Truman made the decision to drop the atom bomb on Hiroshima and Nagasaki.
-## The New Order
 ### The Nazi Empire
 - Hitler wanted German domination of the entirity of Europe, only they can organize it.
 - Some areas were made into German provinces others were not
@@ -399,7 +398,7 @@ Schonberg created new twelve note system of composition
 - The White Rose movement invovled students handing out pamphlets, but they got executed by SS
 - The Gestapo crushed most Communist resistance groups
 - Colonel Count Claus von Stauffenberg tried to kill Hitler from within w/ a bomb which failed to kill Hitler
-## The Holocaust
+## 27.3 - The Holocaust
 - Anti-Semitism was huge theme in Nazism
 #### Early Nazi Policy
 - IN 1939, Nazi policy focused on emigration of German Jews from Germany, Madagascar Plan discussed to ship Jews enmasse to Madagascar.
@@ -425,7 +424,7 @@ Schonberg created new twelve note system of composition
 - In conquest of Nanjing, Japanese soldiers spent several days killing, raping, and looting
 - 800,000 Koreans sent overseas as laborers to Japan, Korean women forced to be prostitutes for troops
 - Prisoners of war used in construction projects like Burma-THailand railway, and thousands of prisoners died from bad diet/working conditions.
-## The Home Front
+## 27.4 - The Home Front
 ### The Mobilization of Peoples
 #### Great Britain
 - British mobilized 55% of British people for war work, including women under 40 who helt half of civil service position + land girls
@@ -481,7 +480,7 @@ Schonberg created new twelve note system of composition
 - First bomb tested in summer of 1945
 - Japan vulnerable to air raids b/c of weak air force, destroying Japnese factories
 - After mobilization of thirteen to sixty into volunteer corps, Truman dropped bomb on Hiroshima + Nagasaki (August 6/9)
-## Aftermath of hte War
+## 27.5 - Aftermath of hte War
 - WW2 super destructive and increased struggles of the daily ppl, and their way of life
 ### The Costs of World War II
 - Soviet Union had most losses, millions faced starvation, civilian deaths quite great
