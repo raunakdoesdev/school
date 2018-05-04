@@ -1,6 +1,11 @@
-## 29.1 Develpment of the Cold War
-- Disagreements were made over the development of the cold war in Europe
-## Chapter 22.2 - Europe and the World: Decolonization
+## Develpment of the Cold War
+- Russians went toward the West Berlin and Germany was divided into a bunch of segments
+- Russians created Eastern Block and Churchill wanted Europe land for himself so caused tension
+## Berlin Wall
+- Russia created the berlin wall with the soviet union as they expected to be payed back after the war
+## Airlift
+- Airlift occured to give West Berlin resources b/c they didn't have any before b/c it was in the Russian block and Russia tried to keep Berlin out of it.
+## Chapter 28.2 - Europe and the World: Decolonization
 - Age of colonization was over, Britain and France reluctant to give up colonies but did so
 ### Africa: The Struggle for Independence
 - In the Gold Coast, Kwame Nkrumah formed the Convention People's Party and Jomo Kenyatta founded Kenya African National Union
@@ -54,7 +59,7 @@
 - Many new nations tried to stay neutral like Nehru of India who took a neutral stance
 - President Sukarno of Indonesia was suspicious of west and and nationalized enterprises and sought economic aid
 - Muslims reseented Sukarno's communism,m overthrew him in 1965, and established General Suharto who had good relations w/ West.
-## 29.3 Recovery and Renewal in Europe
+## 28.3 - Recovery and Renewal in Europe
 ### The Soviet Union: From Stalin to Khruschchev
 - Stalin used female labor force to v quickly surpass prewar industry (not nice but works)
 #### Stalin's Policies
@@ -118,7 +123,7 @@
 - Canada experienced similar growth and reform, joining NATO but also UN (scared of US beating them)
 - North American Air Defense Comand (NORAD) in 1957 = joint air force of US + Canada against Soviets
 - John Diefenbaker won for Conservatives, but Liberal Lester Pearson came back and made welfare state w/ Canada Pension Plan
-## Postwar Society and Culture in the Western World
+## 28.5 Postwar Society and Culture in the Western World
 ### The Structure of European Society
 - New group of experts and managers emerged who got higher education and made sure children did too
 #### A Society of Consumers
@@ -166,7 +171,7 @@
 - Television became popularized esp American Networks which were cheaper
 - US dominated music of Jazz, blues, rhythm, blues, rock 'n' roll w/ Elvis Presley, Chuck Berry, Little Richard
     - Music players made albums more accessible and playing rythym and blues to white audiences
-## A Culture of Protest
+## 29.1 A Culture of Protest
 -  After Second Vietnam War, hippies emerged and new political movements started
 ### A Revolt in Sexual Mores
 - Permissive society allowed sexual freedoms (gay rights, birth control, drugs, porn)
@@ -181,7 +186,7 @@
 ### Antiwar PRotests
 - Pier Paolo Pasolini an intellectual and others were very much against Vietnam War
 - Divided Americans on sending troops to Vietnam, but after four student protesters died in Kent State tings died down.
-## A Divided Western World
+## 29.2 A Divided Western World
 ### Stagnation in the Soviet Union
 - Brezhnev Doctrine (opposite of Truman), more relaxed detente atmosphere
 - A little more lax on art/sci but still strict, economy still heavy/beauracracy but didn’t bother trying to reform
@@ -238,7 +243,7 @@
 ### The Practice of Détente
 - Antiballiistic Missle Treaty limited ABMs in 1972 and Helsinki Accords recognized new borders
 - Reagan returned to cold war, boycotted the Soviet Olympics, aided anti-Soviets in Afghanistan, and was a proponent of the STrategic Defense Initiative (SDI = Star Wars)
-## Scoeity and Culture in the Western WOrld
+## 29.4 Scoeity and Culture in the Western WOrld
 ### The World of Science and Technology
 - Oppenheimer = atom bomb, Turing = primitive computer, Physicists = radar system for B of Britain
 - Soviets sent Sputnik into orbit
