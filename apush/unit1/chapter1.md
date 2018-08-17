@@ -1,3 +1,4 @@
+# Chapter 1 Notes
 ## The Shaping of North America
 - 225 Million Years Ago - Pangea broke apart
 - 10 million years ago - Canadian shield formed (rocky terrain rose out of the water)
